@@ -11,7 +11,7 @@ All these sorts of questions and anguishes, you have resolved before ever invest
 
 Then you don't have any emotional attachment to the money. 
 
-### 2. Use data to adjust your emotions. 
+### 2. Ground your emotions via data.
 It's easy to get carried away by your emotions. Most of the investments you make is always great and could never be better. 
 
 Which is also the reason why most people suck at investing. Because they are emotional investors. 
